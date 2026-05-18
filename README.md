@@ -8,7 +8,7 @@
 
 <br/>
 
-🌐 **Portfolio:** [pramudithasadeepa.me](https://www.pramudithasadeepa.online)
+🌐 **Portfolio:** [pramudithasadeepa.online](https://www.pramudithasadeepa.online)
 
 <br/>
 
